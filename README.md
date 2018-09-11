@@ -2,10 +2,10 @@
 
 ## What is this?
 This is a quick way to
-     Introduce me as a human
-     Answer some likely questions
-     Set expectations about what you can depend on from me as your coworker and manager
-
+* Introduce me as a human
+* Answer some likely questions
+* Set expectations about what you can depend on from me as your coworker and manager
+     
 Also, this will always be a work in progress.
 
 Lastly, this is inspired by Aaron Lerch, Roy Rappaport, Jackson Dowell, Katie Womersley, John Cline, Lara Hogan, and many other great leaders that have found the importance of transparency, honesty, and bringing your whole self to your job.

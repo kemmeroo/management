@@ -1,7 +1,5 @@
 # (WIP) Kristina Kemmer's Management/Leadership ReadMe
 
-# (WIP) Kristina Kemmer's Management/Leadership ReadMe
-
 ## What is this?
 This is a quick way to
 * introduce me as a human

@@ -12,7 +12,7 @@ Lastly, this is inspired by Aaron Lerch, Roy Rappaport, Jackson Dowell, Katie Wo
 
 ## About Me (personality, quirks, life outside of work)
 * I live in Denver, CO (well, Arvada really) with my wife and 3 daughters. As of the last update they are 4, 3, and 2. We also have 2 large dogs, so our house is best described as a circus (and quite loud). If you are on a call with me, there is a chance you may hear screaming (of joy or otherwise) in the background.
-* I love to read (fiction, historical fiction, dystopia), but I've never been keen on reading nonfiction (I :heart: my Audible account for that).
+* I love to read (fiction, historical fiction, dystopia), but I've never been keen on reading nonfiction (I can't live without my Audible account for that).
 * I love live music, so the Denver area is a pretty good place to be - especially since [Red Rocks](https://www.redrocksonline.com/concerts-events) is about 15 minutes from my house.
 * I am a runner, but I'm not necessarily competitive. It gives me a chance to clear my head, think through problems, and catch up on my "reading." My last race was the Marine Corps Marathon in Washington D.C. last October.
 * I am an introvert, but I hide it well. Many people that work with me don't realize it. Days of back to back meetings drain most folks, but I particularly become less patient and more direct than I'd like to be.
